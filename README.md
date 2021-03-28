@@ -1,2 +1,0 @@
-# holozac
-Holomars
